@@ -1,1 +1,2 @@
-# Bio
+# Daniel Flax
+Daniel is a Masters of Science in Business Analytics candidate at the College of William & Mary in Williamsburg, VA. He has six years of experience in accounting and advisory where he provided exceptional value as a business professional to both the firm and his clients through his proven leadershiip capabilities, financial expertise, and adaptability. He excels at developing intricate data driven quantitative and qualitative analyses for leaders at Fortune 500 companies and identifying opportunities to enhance business and financial processes.  
